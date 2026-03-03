@@ -1,1 +1,1 @@
-# https://deethaha-arch.github.io/deetgithub.io/
+# https://deethaha-arch.github.io/deethahagithub.io/
